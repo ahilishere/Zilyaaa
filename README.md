@@ -1,2 +1,0 @@
-# Zilyaaa
-Cookie
